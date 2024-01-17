@@ -1,0 +1,1 @@
+# kyougokuhiroto.github.io
